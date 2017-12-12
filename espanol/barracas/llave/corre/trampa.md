@@ -1,0 +1,1 @@
+Luego, el consejero dijo: "solo debemos esperar a que caiga la noche para activar la trampa".
